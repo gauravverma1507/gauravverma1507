@@ -1,4 +1,4 @@
-Hi there, it's Gaurav 👋 (Gaurav verma)
+Hi there, it's Gaurav 👋
 Machine Learning Enthusiast
 
 
