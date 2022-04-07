@@ -6,7 +6,7 @@ To utilize my knowledge and ideas in this field of Machine learning, Deep learni
 I realised that TO GET SUCCESS IN YOUR WORK  you should be doing, trying, getting failed, trying again and again and at last finally succeeding in the work.
 and yes i am still working on myself to be better each and every day
 Reach me on:
-  E-mail: gauravverma191302078@gmail.com
+  E-mail: gauravverma1507@yahoo.com
   contact: +91 8700128161
 
 
